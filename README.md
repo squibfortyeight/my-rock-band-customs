@@ -1,6 +1,6 @@
 # my rock band customs
-this is where my rb customs go. very very vacant.
-i've got plans to chart some songs.
+this is where my rb customs go. this is super duper empty right now.
+but i've got plans to chart some songs.
 
 including but not limited to:
 
